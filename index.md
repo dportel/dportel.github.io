@@ -7,3 +7,8 @@ Walter Bruce Willis (* 19. März 1955 in Idar-Oberstein, Deutschland) ist ein US
 * 12 Monkeys
 * The Sixth Sense
 * Sin City
+
+Bekannteste Zitat von Bruce Willist
+
+> Yippie-ya-yay,
+> Schweinebacke!
