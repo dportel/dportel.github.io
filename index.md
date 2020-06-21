@@ -12,3 +12,5 @@ Bekannteste Zitat von Bruce Willist
 
 > Yippie-ya-yay,
 > Schweinebacke!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/c4/Bruce_Willis_by_Gage_Skidmore_3.jpg/220px-Bruce_Willis_by_Gage_Skidmore_3.jpg"/>
